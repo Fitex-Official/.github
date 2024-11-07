@@ -21,11 +21,17 @@ While considering any dietary enhancement, an imperative inquiry emerges: Does i
 It seems like you're asking about the ingredients in a product called Fitex. However, there are various products on the market with similar names, and I don't have detailed information about a specific product by that name.
 
 •	Caffeine – Known to boost metabolism and provide an energy boost.
+
 •	Green Tea Extract – Contains antioxidants and can help increase fat burning.
+
 •	Garcinia Cambogia – A tropical fruit extract believed to help suppress appetite and reduce fat.
+
 •	L-Carnitine – An amino acid that helps with fat metabolism and energy production.
+
 •	CLA (Conjugated Linoleic Acid) – Found in meat and dairy, CLA is thought to help with fat loss.
+
 •	Fiber – To promote satiety and help reduce calorie intake.
+
 •	Bitter Orange Extract – Contains synephrine, which is believed to help boost metabolism.
 
 
